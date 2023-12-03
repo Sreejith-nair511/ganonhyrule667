@@ -16,11 +16,7 @@
 
 - 💞️ I’m looking to collaborate on games if you are interested
 - In support of emulators
-- favourite game-Banjoo kazzoie
-                  Breath of wild
-                  prototype
-                  crysis
-                  halo 
+- favourite game-Breath of the wild 
             
 - 📫 How to reach me : instagram : Dm me on  _sreejith_0511nair 
 <!---
