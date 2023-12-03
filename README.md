@@ -16,12 +16,12 @@
 
 - 💞️ I’m looking to collaborate on games if you are interested
 - In support of emulators
-- favourite game-1)Banjoo kazzoie 
--                2)resident evil 4
--                3)halo combat evovled
--                4)prototype
--                5)Breath of wild 
--            
+- favourite game-Banjoo kazzoie
+                  Breath of wild
+                  prototype
+                  crysis
+                  halo 
+            
 - 📫 How to reach me : instagram : Dm me on  _sreejith_0511nair 
 <!---
 ganonhyrule667/ganonhyrule667 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
